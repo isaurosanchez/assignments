@@ -1,1 +1,4 @@
-# assignments_3
+stanley was frauding the bank by using social engineering.his methods were the same techniques that thieves use which is called social engineering . he thought he had this privilege with his lawyer but he didnt so the lawyer contatcted the feds and the feds contacted the bank. then he gets tracked down to his friends apartment, his friend rats him out so then the FBI takes him to federal jail for 9 years but he gets out at 3. an undersover cop befriends him and then they conspire the same fraud he did but but to a different bank. what he didt kno was that his friend was actually undercover so then he takes stanley away.
+
+
+I played "What's your status" and it basically asked me what kind of actions I would make in my social media. One of the questions was talking about spam and who are the people that you friend. At the end it said that i scored 8 points.
